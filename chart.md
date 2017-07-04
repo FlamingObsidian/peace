@@ -1,5 +1,5 @@
 # MOTORCYCLES
-|   | Shmeckles | Woolongs | Blemflarks | Brambles | Good Boy Points | Music Notes | USD | Flurbos | Cummies | Glue |
+|   | Shmeckles 🎠 | Woolongs 🐑 | Blemflarks 🌱 | Brambles 🍓 | Good Boy Points 🔹 | Music Notes 🎵 | USD 💵 | Flurbos 🌽 | Cummies 💦 | Glue |
 |---|-----------|----------|------------|----------|-----------------|-------------|-----|---------|---------|------|
 | 1 | 20 | 1 1/2 | 69 | 5 | 4 | 4/25 | 4 | 14800 | 5 | 1/2 |
 | 2 | 40 | 3 | 138 | 10 | 8 | 8/25 | 8 | 29600 | 10 | 1 |
